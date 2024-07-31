@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on a Visual Studio project
-- 📫 How to reach me: 0636194281 (whatsapp)
+- 📫 How to reach me: matlharejunior@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: I record nusic for fun
 
